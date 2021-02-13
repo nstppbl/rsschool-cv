@@ -12,10 +12,7 @@
 ### ABOUT ME
 >At any meeting (in any situation), do not part with kindness  
 
-I have been working about 10 years in Industrial Automation.  
-My goal is to change my field of activity to Frontend Developer.  
-Good technical skills, hardworking, fastlearner, teamwork, punctual.  
-Want to travel the World and do what I love.  
+I have been working about 10 years in Industrial Automation.My goal is to change my field of activity to Frontend Developer. Good technical skills, hardworking, fastlearner, teamwork, punctual. Want to travel the World and do what I love.  
 
 #
 
